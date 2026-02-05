@@ -1,1 +1,1 @@
-# digitalHorizons
+#DIGITAL HORIZONS
